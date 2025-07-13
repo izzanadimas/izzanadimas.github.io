@@ -1,1 +1,0 @@
-# izzanadimas.github.io
